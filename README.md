@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Game Development and which Netflix series to binge watch!!**
 
-- 📫 How to reach me **iamutkarshyadav1@gmail.com**
+- 📫 How to reach me **anshgeu27@gmail.com**
 
 
 
